@@ -29,7 +29,7 @@ https://www.youtube.com/@ChinfoChannel/videos
 
 [Ashtadhyayi - Sanskrit Grammar - 100 by NCT Acharya](https://www.youtube.com/watch?v=3f1WKovrtvY&list=PLWjpkY4mU2RDgcakdhrrC8mUIqkaosEDU)
 
-
+https://www.youtube.com/@shreesomnathsanskrituniver7604
 
 
 # Links 
@@ -108,6 +108,8 @@ https://learnsamskrit.online/
 https://samvardhini.in/
 
 https://sanskrit.org.in/
+
+
 
 # Dictionaries
 [Telugu <-> Sanskrit](https://glosbe.com/te/sa/%E0%B0%85%E0%B0%82%E0%B0%97%E0%B0%BE%E0%B0%B0%E0%B0%95%E0%B1%81%E0%B0%A1%E0%B1%81)
