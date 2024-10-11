@@ -127,5 +127,7 @@ https://medium.com/@nicerajanikant/fact-check-about-sanskrit-as-programming-lang
 
 https://epapersudharmasanskritdaily.in/#
 
+https://www.ijcttjournal.org/2022/Volume-70%20Issue-4/IJCTT-V70I4P102.pdf
+
 
 
