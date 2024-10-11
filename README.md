@@ -29,7 +29,7 @@ https://www.youtube.com/@ChinfoChannel/videos
 
 [Ashtadhyayi - Sanskrit Grammar - 100 by NCT Acharya](https://www.youtube.com/watch?v=3f1WKovrtvY&list=PLWjpkY4mU2RDgcakdhrrC8mUIqkaosEDU)
 
-https://www.youtube.com/@shreesomnathsanskrituniver7604
+https://www.youtube.com/@shreesomnathsanskrituniver7604  - OPERATING SYSTEM
 
 
 # Links 
