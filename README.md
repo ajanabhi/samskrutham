@@ -113,7 +113,7 @@ https://samvardhini.in/
 # Note : 
 hold for now will resume later in future :) 
 
-# Programming languages
+# Programming languages and OS
 
 https://github.com/vedic-lang/vedic
 
@@ -121,7 +121,11 @@ https://www.linkedin.com/pulse/%E0%A4%B8%E0%A4%B8%E0%A4%95%E0%A4%A4-based-os-fus
 
 https://omlang.com/
 
+https://medium.com/@nicerajanikant/fact-check-about-sanskrit-as-programming-language-8cb2876e4a3a
+
 # Papers
 
 https://epapersudharmasanskritdaily.in/#
+
+
 
