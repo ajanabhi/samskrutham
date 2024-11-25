@@ -1,6 +1,6 @@
 # samskrutham
 
-OS, language , block chain ,digital currency
+OS (AI powered public project need 100 of engineers), language , block chain ,digital currency
 
 
 # learn_sanskrit
