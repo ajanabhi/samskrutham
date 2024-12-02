@@ -45,6 +45,9 @@ https://www.quora.com/Why-can%E2%80%99t-we-make-an-operating-system-in-Sanskrit-
 
 https://samskritpromotion.in/
 
+https://ekadantha.in/
+
+
 # Grammar 
 [learnsanskrit.org](http://www.learnsanskrit.org/)
 
